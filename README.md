@@ -1,2 +1,0 @@
-# PhucHungHub
-Noclip + Speed
